@@ -1,4 +1,4 @@
-# The Things They Carried – IB EALL Paper 2 guide
+# Chronicle of a Death Foretold – IB EALL Paper 2 guide
 
 Revision guide for IB English A: Language and Literature, Paper 2 (comparative essay).
 
